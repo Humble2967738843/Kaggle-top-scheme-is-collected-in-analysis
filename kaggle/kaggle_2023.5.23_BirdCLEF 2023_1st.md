@@ -7,4 +7,4 @@
 | 方案地址 | https://www.kaggle.com/competitions/birdclef-2023/discussion/412808 |
 
  
-ceshi opkfpao 会提交 啊
+ceshi opkfpao 会提交 啊的撒好滴哦撒的
