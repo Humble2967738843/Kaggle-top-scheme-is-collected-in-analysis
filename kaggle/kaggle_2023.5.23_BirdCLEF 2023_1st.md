@@ -6,4 +6,4 @@
 | 竞赛标签 | Multiclass Classification Audio                       |
 | 方案地址 | https://www.kaggle.com/competitions/birdclef-2023/discussion/412808 |
 
-ceshinklnklnklnkln
+ceshinklnklnklnklnbljbjkbjklbjjkbjkbjkbkjbk
